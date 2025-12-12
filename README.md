@@ -1,6 +1,6 @@
 ## 👤 About Me
 
-"Just a person who wants to work and live doing what they love."
+Just a person who wants to work and live doing what they love.
 
 ⚙️ **Tools**
 
